@@ -298,13 +298,15 @@ Additional Readings:
 
   ## 3.15) Project Report & Evaluation - JK & KK
 
+**TBD**
 
-
-
+---------------------------------------------------------------------------------------------------------------------
   
   
-  
+### If anyone has any question regarding this course, Do not hesitate to contact T.A( Hong Yeongjun)
+### yjayhong37@dgu.ac.kr 
 
+### Slack Channel among students Might be open as soon as this fall semester begins
   
   
   
