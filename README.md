@@ -304,9 +304,10 @@ Additional Readings:
   
   
 ### If anyone has any question regarding this course, Do not hesitate to contact T.A( Hong Yeongjun)
+
 ### yjayhong37@dgu.ac.kr 
 
-### Slack Channel among students Might be open as soon as this fall semester begins
+### Students Slack Channel Might be open as soon as this fall semester begins
   
   
   
