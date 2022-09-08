@@ -307,7 +307,9 @@ Additional Readings:
 
 ### yjayhong37@dgu.ac.kr 
 
-### Students Slack Channel Might be open as soon as this fall semester begins
+### The Student Slack Channel has newly opend. 
+
+### Contact TA to get involoved ! 
   
   
   
